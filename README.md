@@ -8,8 +8,8 @@
 
 📫 How to reach me:
 - Email: hs1903330@gmail.com
-- LinkedIn: [](https://www.linkedin.com/in/harsh-saini-2a2959256)
-- Twitter: [](https://twitter.com/HarshSaini3878)
+- LinkedIn: https://www.linkedin.com/in/harsh-saini-2a2959256
+- Twitter: https://twitter.com/HarshSaini3878
 
 😄 Pronouns: He/Him
 
